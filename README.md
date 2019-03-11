@@ -4,7 +4,8 @@
 
 - 祖籍：江苏南通
 
-- 照片：！[md.jpg](https://gd1.alicdn.com/imgextra/i2/0/O1CN01x7xC9k1oe5Qykb5TS_!!0-item_pic.jpg)
+- 照片：![md.jpg](https://upload-images.jianshu.io/upload_images/14956672-78aa2ea0b3e5162b.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
 
 - 教育经历：(学生党，月光族）
 
